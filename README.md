@@ -1,2 +1,2 @@
 # Iris
-I'm IRIS✨✨
+Hi. I'm IRIS✨✨
